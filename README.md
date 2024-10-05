@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lordseddik
-prgramming cs-dsa student,at ensia school
+- a programmer and cs student, ensia school
 this is my official schools account
 discord:sedddik#4094
 
